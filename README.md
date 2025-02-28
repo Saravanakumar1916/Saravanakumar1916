@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **frontend**
 
-- 📫 How to reach me **saravanakumar190603@gmail.com**
+- 📫 How to reach me **work mail.saravanan@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
